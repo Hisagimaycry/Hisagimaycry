@@ -1,4 +1,7 @@
-<img width="600" height="600" alt="1QFq" src="https://github.com/user-attachments/assets/f3c049c5-6698-4305-b5d1-93f44ba618e0" />
+<p align="center">This read me is a current wip, BARE WITH ME OKAY....</p>
 
 
-SPAIN YOU ARE so FUCKING precious to ME.
+<p align="center"> <img src="https://github.com/user-attachments/assets/6c9206eb-12e8-41de-b830-2962f30a94db" width="700" alt="Banner" /> </p>
+
+
+<h1 align="center"><b>TS WAS MADE BY MY FRIEND ----> @Senjurochistic ILYY HURRY UP AND FINISH IT!!11!</b></h1>
